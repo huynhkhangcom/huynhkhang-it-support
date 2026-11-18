@@ -36,7 +36,7 @@ Kỹ thuật viên tin học, trực tiếp sửa máy và hỗ trợ cài đặ
 | Facebook | https://www.facebook.com/dichvutannoihuynhkhang |
 | YouTube | https://www.youtube.com/@maytinh.khongkho |
 | TikTok | https://www.tiktok.com/@maytinh.khongkho |
-| Pinterest | https://www.pinterest.com/huynhkhanh239/ |
+| Pinterest | https://www.pinterest.com/huynhkhangcom/ |
 | Behance | https://www.behance.net/huynhkhang |
 | about.me | https://about.me/huynhkhang |
 | X | https://x.com/huynhkhang_pt |
